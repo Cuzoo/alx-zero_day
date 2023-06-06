@@ -1,2 +1,1 @@
-My first readme
-Fantastic
+God is the greatest
