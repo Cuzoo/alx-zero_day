@@ -1,1 +1,1 @@
-God is the greatest always
+God is the greatest 
